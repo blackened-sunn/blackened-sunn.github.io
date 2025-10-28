@@ -1,4 +1,4 @@
 # Max Wade
 
-(/headshot small.jpg)
+![](/headshot small.jpg)
 
