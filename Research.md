@@ -4,7 +4,7 @@
 
 ## Research
 
-My academic research explores the development of the natural philosophy from antiquity through its reception in the Middle Ages. In particular, I am interested in the way in which people historically understood the natural world, especially the relationship between broader cosmological commitments and their understanding of biology, physics, and technology. As such, my research works in the intersection of the [history and philosophy of science](https://en.wikipedia.org/wiki/History_and_philosophy_of_science) and the broader [environmental humanities](https://en.wikipedia.org/wiki/Environmental_humanities). 
+My academic research explores the development of natural philosophy from antiquity through its reception in the Middle Ages. In particular, I am interested in the way in which people historically understood the natural world, especially the relationship between broader cosmological commitments and their understanding of biology, physics, and technology. As such, my research works in the intersection of the [history and philosophy of science](https://en.wikipedia.org/wiki/History_and_philosophy_of_science) and the broader [environmental humanities](https://en.wikipedia.org/wiki/Environmental_humanities). 
 I am also interested in the history of metaphysics, especially the ontology of artifacts and some topics in social and political philosophy. 
 
 I have ongoing research projects on Plotinus' metaphysics and theory of divination. 
@@ -19,13 +19,13 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 Wade, Max. “Plotinus on the Uses and Limits of the Craft Analogy.” *Apeiron*. [Currently under review.] 
 
-Wade, Max. “Gersonides on the Heavenly Bodies’ Relation to the Agent Intellect” in *Mind, Soul and the Cosmos in the High Middle Ages*, eds. Jack Cunningham, Adam Foxon and Rosamund Gammie. Studies in the History of Philosophy of Mind (SHPM), vol. 31. Springer, Cham. 217–233, doi: https://doi.org/10.1007/978-3-031-78876-5_11 
+Wade, Max. “Gersonides on the Heavenly Bodies’ Relation to the Agent Intellect” in *Mind, Soul and the Cosmos in the High Middle Ages*, eds. Jack Cunningham, Adam Foxon and Rosamund Gammie. Studies in the History of Philosophy of Mind (SHPM), vol. 31. Springer, Cham. 217–233. [Link](https://doi.org/10.1007/978-3-031-78876-5_11)
 
-Wade, Max. “Stoic Pantheism and Environmental Ethics in Pliny the Elder,” in *Pantheism and Ecology: Cosmological, Philosophical, and Theological Perspectives*, ed. Luca Valera. Ecology and Ethics, vol 6 (2023). Springer, Cham. 15–27, doi: https://doi.org/10.1007/978-3-031-40040-7_2 
+Wade, Max. “Stoic Pantheism and Environmental Ethics in Pliny the Elder,” in *Pantheism and Ecology: Cosmological, Philosophical, and Theological Perspectives*, ed. Luca Valera. Ecology and Ethics, vol 6 (2023). Springer, Cham. 15–27. [Link](https://doi.org/10.1007/978-3-031-40040-7_2) 
 
-Wade, Max. “Formless Matter in Gersonides’ Cosmology.” *History of Philosophy & Logical Analysis* 26, 1 (2023): 79–103, doi: https://doi.org/10.30965/26664275-bja10068 
+Wade, Max. “Formless Matter in Gersonides’ Cosmology.” *History of Philosophy & Logical Analysis* 26, 1 (2023): 79–103. [Link](https://doi.org/10.30965/26664275-bja10068)
 
-Wade, Max. “Eriugena on the Eternity and Creation of the World.” *Thaumàzein* 10, 2 (2022): 67–90, doi: https://doi.org/10.13136/thau.v10i2.187
+Wade, Max. “Eriugena on the Eternity and Creation of the World.” *Thaumàzein* 10, 2 (2022): 67–90. [Link](https://doi.org/10.13136/thau.v10i2.187)
 
 * * *
 
