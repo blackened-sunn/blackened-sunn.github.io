@@ -56,3 +56,17 @@ Wade, Max. “Eriugena on the Eternity and Creation of the World.” *Thaumàzei
 “Society, Ethics and Reason in the Ḥatäta Zär’a Ya‛ǝqob” at the Fordham Philosophical Society Graduate Conference. Fordham University: New York, NY. Feb. 2, 2022. 
 
 “Thomas Aquinas and the Legacy of Pre-Socratic Theories of Perception” at the Society for Medieval and Renaissance Philosophy inaugural conference. Notre Dame: South Bend, IN. Oct. 3–6, 2021. 
+
+* * * 
+
+### Departmental Talks and Other Presentations
+
+“Plotinus’ Ontology of Artifacts” at the Young Philosophers Series. Boston College: Chestnut Hill, MA. Apr. 9, 2025
+
+“Emma Goldman and Dora Marsden” at the PhilosopHERs Workshop. Boston College: Chestnut Hill, MA. Dec. 6, 2023. 
+
+"Plotinus' Theory of Intelligible Animals in Ennead VI.7.5–12" for the John Duffy Society (Harvard University Department of Classics). Harvard University: Cambridge, MA. Apr. 12, 2023. 
+
+“Teachers, Mystics, and Philosophers: Women in the Neoplatonic Academy” at the PhilosopHERs Workshop. Boston College: Chestnut Hill, MA. Jan. 24, 2022. 
+
+“Philosophy and Astrology in the Middle Ages” at the Young Philosophers Series. Boston College: Chestnut Hill, MA. Nov. 30, 2021. 
