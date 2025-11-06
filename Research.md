@@ -1,5 +1,7 @@
 # [Home](/README.md)
 
+![](/Gustave_Boulanger_-_Répétition_du__Joueur_de_flûte__et_de_la__Femme_de_Diomède__chez_le_prince_Napoléon_-_Orsay_RF_1550.jpg)
+
 ## Research
 
 My academic research explores the development of the natural philosophy from antiquity through its reception in the Middle Ages. In particular, I am interested in the way in which people historically understood the natural world, especially the relationship between broader cosmological commitments and their understanding of biology, physics, and technology. As such, my research works in the intersection of the [history and philosophy of science](https://en.wikipedia.org/wiki/History_and_philosophy_of_science) and the broader [environmental humanities](https://en.wikipedia.org/wiki/Environmental_humanities). 
