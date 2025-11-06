@@ -17,15 +17,15 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 ### Publications 
 
-Wade, Max. “Plotinus on the Uses and Limits of the Craft Analogy.” *Apeiron*. [Currently under review.] 
+“Plotinus on the Uses and Limits of the Craft Analogy.” *Apeiron*. [Currently under review.] 
 
-Wade, Max. “Gersonides on the Heavenly Bodies’ Relation to the Agent Intellect” in *Mind, Soul and the Cosmos in the High Middle Ages*, eds. Jack Cunningham, Adam Foxon and Rosamund Gammie. Studies in the History of Philosophy of Mind (SHPM), vol. 31. Springer, Cham. 217–233. [Link](https://doi.org/10.1007/978-3-031-78876-5_11)
+[“Gersonides on the Heavenly Bodies’ Relation to the Agent Intellect”](https://doi.org/10.1007/978-3-031-78876-5_11) in *Mind, Soul and the Cosmos in the High Middle Ages*, eds. Jack Cunningham, Adam Foxon and Rosamund Gammie. Studies in the History of Philosophy of Mind (SHPM), vol. 31. Springer, Cham. 217–233. 
 
-Wade, Max. “Stoic Pantheism and Environmental Ethics in Pliny the Elder,” in *Pantheism and Ecology: Cosmological, Philosophical, and Theological Perspectives*, ed. Luca Valera. Ecology and Ethics, vol 6 (2023). Springer, Cham. 15–27. [Link](https://doi.org/10.1007/978-3-031-40040-7_2) 
+[“Stoic Pantheism and Environmental Ethics in Pliny the Elder”](https://doi.org/10.1007/978-3-031-40040-7_2) in *Pantheism and Ecology: Cosmological, Philosophical, and Theological Perspectives*, ed. Luca Valera. Ecology and Ethics, vol 6 (2023). Springer, Cham. 15–27. 
 
-Wade, Max. “Formless Matter in Gersonides’ Cosmology.” *History of Philosophy & Logical Analysis* 26, 1 (2023): 79–103. [Link](https://doi.org/10.30965/26664275-bja10068)
+[“Formless Matter in Gersonides’ Cosmology.”](https://doi.org/10.30965/26664275-bja10068) *History of Philosophy & Logical Analysis* 26, 1 (2023): 79–103.
 
-Wade, Max. “Eriugena on the Eternity and Creation of the World.” *Thaumàzein* 10, 2 (2022): 67–90. [Link](https://doi.org/10.13136/thau.v10i2.187)
+[“Eriugena on the Eternity and Creation of the World.”](https://doi.org/10.13136/thau.v10i2.187) *Thaumàzein* 10, 2 (2022): 67–90.
 
 * * *
 
