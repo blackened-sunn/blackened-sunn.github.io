@@ -1,8 +1,12 @@
 # [Home](/README.md)
 
+![](/Simon_Bening_-_Villagers_on_Their_Way_to_Church_-_Google_Art_Project.jpg)
+
 ## Writing 
 
 My [Substack](https://maxwade.substack.com/) is home to most of my non-academic writing. 
+
+* * *
 
 #### For the *Journal of the History of Ideas Blog*
 
