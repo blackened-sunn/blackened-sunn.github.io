@@ -1,5 +1,7 @@
 # [Home](/README.md)
 
+![](/MANNapoli_124545_plato%27s_academy_mosaic_%28cropped%29.jpg)
+
 ## About Me
 
 I currently teach at [St. Joseph's University](https://directory.sju.edu/max-wade) in Philadelphia. For more information, see my [CV](/Max%20Wade%20CV%20(10-25).pdf) or [ORCID page](https://orcid.org/0000-0001-9691-3370).
