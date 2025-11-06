@@ -26,7 +26,7 @@ My review of the 1980 film ["Altered States"](https://en.wikipedia.org/wiki/Alte
 
 #### Undergrad Publications
 
-Wade, Maxwell. “Walter Benjamin's ‘Über den Begriff der Geschichte’ and the Marxist Tradition.” *Dianoia: The Undergraduate Philosophy Journal of Boston College* 6, no. 1 (2019): 61–74. https://ejournals.bc.edu/index.php/dianoia/article/view/11737
+[“Walter Benjamin's ‘Über den Begriff der Geschichte’ and the Marxist Tradition.”](https://ejournals.bc.edu/index.php/dianoia/article/view/11737) *Dianoia: The Undergraduate Philosophy Journal of Boston College* 6, no. 1 (2019): 61–74. 
 
 I also wrote an article for [Proteus: The Rutgers University Undergraduate Journal of Comparative Literature](https://sites.rutgers.edu/proteusjournal/previous-issues/) in 2019 on Otto Weininger but this seems to have been [lost to time](https://proteusjournal.files.wordpress.com/2019/12/proteus-spring-2019-edition.pdf).
 
