@@ -1,5 +1,7 @@
 # [Home](/README.md)
 
+![](/Boethius_'s_Instutione_Musica,_Cambridge_University_Library_Ii_3.12_fol_61v.jpg)
+
 ## Teaching
 
 I am currently teaching the course "Moral Foundations" at [St. Joseph's University](https://www.sju.edu/departments/philosophy/) in Philadelphia; in the spring I will be teaching "Philosophy of Human Nature." 
