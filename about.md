@@ -45,7 +45,3 @@ Advisors: [Michael Levine](https://german.rutgers.edu/people/faculty/michael-lev
 - Cosmology 
 - Ontology of Artifacts 
 - Environmental Humanities 
-
-* * * 
-
-For a full list of 
