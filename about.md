@@ -1,4 +1,4 @@
-# [Home](/README.md)
+[About Me](/about.md) | [Research](/Research.md) | [Writing](/Writing.md) | [Teaching](/Teaching.md)
 
 ![](/MANNapoli_124545_plato%27s_academy_mosaic_%28cropped%29.jpg)
 
