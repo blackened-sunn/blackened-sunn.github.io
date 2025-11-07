@@ -1,4 +1,4 @@
-# [Home](/README.md)
+[About Me](/about.md) | [Research](/Research.md) | [Writing](/Writing.md) | [Teaching](/Teaching.md)
 
 ![](/Gustave_Boulanger_-_Répétition_du__Joueur_de_flûte__et_de_la__Femme_de_Diomède__chez_le_prince_Napoléon_-_Orsay_RF_1550.jpg)
 
