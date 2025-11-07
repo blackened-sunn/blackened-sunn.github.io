@@ -1,4 +1,4 @@
-# [Home](/README.md)
+[About Me](/about.md) | [Research](/Research.md) | [Writing](/Writing.md) | [Teaching](/Teaching.md)
 
 ![](/Simon_Bening_-_Villagers_on_Their_Way_to_Church_-_Google_Art_Project.jpg)
 
