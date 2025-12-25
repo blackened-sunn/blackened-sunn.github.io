@@ -4,12 +4,10 @@
 
 ## Teaching
 
-I am currently teaching the course "Moral Foundations" at [St. Joseph's University](https://www.sju.edu/departments/philosophy/) in Philadelphia; in the spring I will be teaching "Philosophy of Human Nature." 
-
-### Teaching Experience
-
 *Full Instructor*
 
+- ETHC 201 Honors Moral Philosophy - Thomas Jefferson University, Spring 2026
+- PHL 260 Philosophy of Human Nature - St. Joseph’s University, Spring 2026
 - PHL 154 Moral Foundations – St. Joseph’s University, Fall 2025
 - PHIL 2264 Logic – Boston College, Spring 2023
 - PHIL 2264 Logic – Boston College, Fall 2022
