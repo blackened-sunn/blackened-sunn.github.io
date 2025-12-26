@@ -19,7 +19,7 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 “Plotinus on the Uses and Limits of the Craft Analogy.” *Apeiron*. [Currently under review.] 
 
-[“Gersonides on the Heavenly Bodies’ Relation to the Agent Intellect”](https://doi.org/10.1007/978-3-031-78876-5_11) in *Mind, Soul and the Cosmos in the High Middle Ages*, eds. Jack Cunningham, Adam Foxon and Rosamund Gammie. Studies in the History of Philosophy of Mind (SHPM), vol. 31. Springer, Cham. 217–233. 
+[“Gersonides on the Heavenly Bodies’ Relation to the Agent Intellect”](https://doi.org/10.1007/978-3-031-78876-5_11) in *Mind, Soul and the Cosmos in the High Middle Ages*, eds. Jack Cunningham, Adam Foxon and Rosamund Gammie. Studies in the History of Philosophy of Mind (SHPM), vol. 31 (2025). Springer, Cham. 217–233. 
 
 [“Stoic Pantheism and Environmental Ethics in Pliny the Elder”](https://doi.org/10.1007/978-3-031-40040-7_2) in *Pantheism and Ecology: Cosmological, Philosophical, and Theological Perspectives*, ed. Luca Valera. Ecology and Ethics, vol 6 (2023). Springer, Cham. 15–27. 
 
@@ -34,6 +34,12 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 "Review of Aristotle’s *Ontology of Artifacts* by Marilù Papandreou" in *The International Journal of the Platonic Tradition*. [Forthcoming]
 
 * * *
+
+### Articles in Translation
+
+[“Sobre a eternidade e a criação do mundo em Erígena”](https://www.academia.edu/145552849/Evora_Verza_Sousa_Orgs_A_discuss%C3%A3o_sobre_a_eternidade_do_mundo_nas_tradi%C3%A7%C3%B5es_%C3%A1rabe_hebraica_e_latina_2025) trans. Tadeu M. Verza, in *A discussão sobre a eternidade do mundo nas tradições árabe, hebraica e latina*, eds. Fátima R. R. Évora, Tadeu M. Verza, and Meline C. Sousa (2025). Editora PPGFIL-UFMG, Belo Horizonte. 51–81.
+
+***
 
 ### Conference Presentations
 
