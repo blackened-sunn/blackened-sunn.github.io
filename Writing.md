@@ -24,6 +24,12 @@ My review of the 1980 film ["Altered States"](https://en.wikipedia.org/wiki/Alte
 
 * * * 
 
+#### For *tongue .etc*
+
+[*The Writing Disease: An Essay on Alcidamas of Elaea’s “On Sophists”](https://tongueetc.hotglue.me/?february2026). Published Feb. 3, 2026.
+
+* * *
+
 #### Undergrad Publications
 
 [“Walter Benjamin's ‘Über den Begriff der Geschichte’ and the Marxist Tradition.”](https://ejournals.bc.edu/index.php/dianoia/article/view/11737) *Dianoia: The Undergraduate Philosophy Journal of Boston College* 6, no. 1 (2019): 61–74. 
