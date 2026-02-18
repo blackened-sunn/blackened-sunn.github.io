@@ -26,7 +26,7 @@ My review of the 1980 film ["Altered States"](https://en.wikipedia.org/wiki/Alte
 
 #### For *tongue .etc*
 
-[*The Writing Disease: An Essay on Alcidamas of Elaea’s “On Sophists”](https://tongueetc.hotglue.me/?february2026). Published Feb. 3, 2026.
+[*The Writing Disease: An Essay on Alcidamas of Elaea’s “On Sophists”*](https://tongueetc.hotglue.me/?february2026). Published Feb. 3, 2026.
 
 * * *
 
