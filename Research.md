@@ -31,7 +31,7 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 ### Book Reviews 
 
-"Review of Aristotle’s *Ontology of Artifacts* by Marilù Papandreou" in *The International Journal of the Platonic Tradition*. [Forthcoming]
+["Aristotle’s Ontology of Artifacts, *written by* Papandreou, Marilù"](https://doi.org/10.1163/18725473-12341585) in *The International Journal of the Platonic Tradition* 20 (2026). 
 
 * * *
 
