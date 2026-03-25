@@ -69,6 +69,8 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 ### Departmental Talks and Other Presentations
 
+“Anaxagoras and Socrates on Natural Teleology” at the [Thought Club: Speakers Series](https://libwww.freelibrary.org/calendar/event/165342). Free Library of Philadelphia: Philadelphia, PA. Apr. 16, 2026. 
+
 “Plotinus’ Ontology of Artifacts” at the Young Philosophers Series. Boston College: Chestnut Hill, MA. Apr. 9, 2025
 
 “Emma Goldman and Dora Marsden” at the PhilosopHERs Workshop. Boston College: Chestnut Hill, MA. Dec. 6, 2023. 
