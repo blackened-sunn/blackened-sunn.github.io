@@ -4,7 +4,7 @@
 
 ## About Me
 
-I currently teach at [St. Joseph's University](https://directory.sju.edu/max-wade) in Philadelphia. For more information, see my [CV](/Max%20Wade%20CV%20(10-25).pdf) or [ORCID page](https://orcid.org/0000-0001-9691-3370).
+I currently teach at [St. Joseph's University](https://directory.sju.edu/max-wade) in Philadelphia. For more information, see my [CV](/Max%20Wade%20CV%20(3-26).pdf) or [ORCID page](https://orcid.org/0000-0001-9691-3370).
 
 I worked as the editorial assistant for the [*Proceedings of the Boston Area Colloquium in Ancient Philosophy*](https://www.bc.edu/bc-web/schools/morrissey/departments/philosophy/research/lectures/colloquium-ancient.html) for four years (fall 2021–spring 2025). It is published through [Brill](https://brill.com/view/journals/bapj/bapj-overview.xml?language=en&srsltid=AfmBOorFk_7Ms9urN91yEgbdLzVBz8OalEXfpctZaRyqHE6p3BMNR8OR). 
 
