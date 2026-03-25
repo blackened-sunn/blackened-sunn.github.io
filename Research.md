@@ -17,8 +17,6 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 ### Publications 
 
-“Plotinus on the Uses and Limits of the Craft Analogy.” *Apeiron*. [Currently under review.] 
-
 [“Gersonides on the Heavenly Bodies’ Relation to the Agent Intellect”](https://doi.org/10.1007/978-3-031-78876-5_11) in *Mind, Soul and the Cosmos in the High Middle Ages*, eds. Jack Cunningham, Adam Foxon and Rosamund Gammie. Studies in the History of Philosophy of Mind (SHPM), vol. 31 (2025). Springer, Cham. 217–233. 
 
 [“Stoic Pantheism and Environmental Ethics in Pliny the Elder”](https://doi.org/10.1007/978-3-031-40040-7_2) in *Pantheism and Ecology: Cosmological, Philosophical, and Theological Perspectives*, ed. Luca Valera. Ecology and Ethics, vol 6 (2023). Springer, Cham. 15–27. 
