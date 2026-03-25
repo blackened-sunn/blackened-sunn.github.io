@@ -67,7 +67,7 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 * * * 
 
-### Departmental Talks and Other Presentations
+### Invited Talks and Other Presentations
 
 “Anaxagoras and Socrates on Natural Teleology” at the [Thought Club: Speakers Series](https://libwww.freelibrary.org/calendar/event/165342). Free Library of Philadelphia: Philadelphia, PA. Apr. 16, 2026. 
 
