@@ -1,4 +1,4 @@
-[About Me](/about.md) | [Research](/Research.md) | [Writing](/Writing.md) | [Teaching](/Teaching.md)
+[About Me](/about.md) | [Research](/Research.md) | [Writing](/Writing.md) | [Teaching](/Teaching.md) | [Media](/Media.md)
 
 ![](/Boethius_'s_Instutione_Musica,_Cambridge_University_Library_Ii_3.12_fol_61v.jpg)
 
