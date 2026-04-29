@@ -1,6 +1,6 @@
 # Max Wade
 
-[About Me](/about.md) | [Research](/Research.md) | [Writing](/Writing.md) | [Teaching](/Teaching.md) 
+[About Me](/about.md) | [Research](/Research.md) | [Writing](/Writing.md) | [Teaching](/Teaching.md) | [Media](/Media.md)
 
 ![](/headshot%20small.jpg)
 
