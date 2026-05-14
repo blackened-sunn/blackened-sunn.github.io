@@ -26,9 +26,15 @@ My review of the 1980 film ["Altered States"](https://en.wikipedia.org/wiki/Alte
 
 #### For *tongue .etc*
 
-[*The Writing Disease: An Essay on Alcidamas of Elaea’s “On Sophists”*](https://tongueetc.hotglue.me/?february2026). Published Feb. 3, 2026.
+[*The Writing Disease: An Essay on Alcidamas of Elaea’s “On Sophists”*](https://tongueetc.hotglue.me/?february2026). Published Feb. 3, 2026. Republished from [my Substack](https://substack.com/@maxwade/p-181591242).
 
 *N.b.: I also serve as an editor for* tongue .etc. 
+
+* * *
+
+#### For *THELIFTEDVEIL*
+
+[*On Doubt*](https://www.theliftedveil.uk/on-doubt/). Published May 6, 2026. Republished from [my Substack](https://substack.com/@maxwade/p-194546642).
 
 * * *
 
