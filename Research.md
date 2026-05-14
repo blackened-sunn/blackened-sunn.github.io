@@ -41,6 +41,8 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 ### Conference Presentations
 
+“Mental and Extramental Time in Crescas and Descartes” at the Wisdom from the Middle Ages: Philosophical Contributions from the Abrahamic Traditions conference. University of New Brunswick: Fredericton, NB. May 12–13, 2026. 
+
 “‘The True Meeting of the Minds’: Plotinus on Assemblies, Decision-Making, and Collective Agency” at the 2025 annual meeting of the Ancient Philosophy Society (APS). Philadelphia, PA. Apr. 24–26, 2025. 
 
 “Existential Risk and the Anthropocene: Three Ancient Perspectives on Human Precarity” at the 2024 annual conference of the Society for Philosophy in the Contemporary World (SPCW). Worcester Polytechnic Institute: Worcester, MA. Jul. 17–21, 2024. 
