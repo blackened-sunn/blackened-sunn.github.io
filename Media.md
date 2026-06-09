@@ -4,7 +4,7 @@
 
 ## Media appearances and interviews
 
-["The Stranger Side of Ancient Philosophy: Materialism and Metaphysics with Max Wade"](https://youtu.be/l--IPioT30Y?si=q0w0_NwiCOEmatN7) via [Varn Vlog](https://www.youtube.com/@VarnVlog/). Airs Jun. 2, 2026. 
+["The Stranger Side of Ancient Philosophy: Materialism and Metaphysics with Max Wade"](https://youtu.be/l--IPioT30Y?si=q0w0_NwiCOEmatN7) via [Varn Vlog](https://www.youtube.com/@VarnVlog/). Aired Jun. 2, 2026. 
 
 ***
 
