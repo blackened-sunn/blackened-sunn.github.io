@@ -7,7 +7,7 @@
 My academic research explores the development of natural philosophy from antiquity through its reception in the Middle Ages. In particular, I am interested in the way in which people historically understood the natural world, especially the relationship between broader cosmological commitments and their understanding of biology, physics, and technology. As such, my research works in the intersection of the [history and philosophy of science](https://en.wikipedia.org/wiki/History_and_philosophy_of_science) and the broader [environmental humanities](https://en.wikipedia.org/wiki/Environmental_humanities). 
 I am also interested in the history of metaphysics, especially the ontology of artifacts and some topics in social and political philosophy. 
 
-I have ongoing research projects on Plotinus' metaphysics and theory of divination. 
+I have ongoing research projects on Plotinus' metaphysics and natural teleology, as well as a developing interest in Epicurean philosophy. 
 
 See the [writing](/Writing.md) page for pieces written for a popular audience. 
 
@@ -40,6 +40,8 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 ***
 
 ### Conference Presentations
+
+“Plotinus on the Mantic Arts and the Critique of Atomism in *Enn.* III.1 (3)” at the 23rd annual conference of the International Society for Neoplatonic Studies (ISNS). KU Leuven: Leuven, Belgium. Jun. 3–6, 2026. 
 
 “Mental and Extramental Time in Crescas and Descartes” at the Wisdom from the Middle Ages: Philosophical Contributions from the Abrahamic Traditions conference. University of New Brunswick: Fredericton, NB. May 12–13, 2026. 
 
