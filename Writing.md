@@ -6,6 +6,8 @@
 
 My [Substack](https://maxwade.substack.com/) is home to most of my non-academic writing. 
 
+The material here generally consists of non-fiction essays written for a popular audience, with some falling more on the side of academic writing for a generalist audience and some being better characterized as creative non-fiction.   
+
 * * *
 
 #### For the *Journal of the History of Ideas Blog*
