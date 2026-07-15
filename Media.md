@@ -14,4 +14,6 @@
 
 ## Other collaborations
 
+Liner notes for Ethan W. Olsen's ["My God is a Comsuming Fire"](https://lifebrut.bandcamp.com/album/my-god-is-a-consuming-fire) (LP available on [Carbon Records](https://carbonrecords.com/bands/my-god-is-a-consuming-fire)). 
+
 Contributor to [Philly Psych Zine #2](https://www.instagram.com/p/DU1VzbpkqWp/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==). Published Feb. 16, 2026. 
