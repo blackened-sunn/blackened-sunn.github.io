@@ -18,6 +18,12 @@ The material here generally consists of non-fiction essays written for a popular
 
 * * *
 
+#### For *Hyperspekulation*
+
+[*Psychogeography apud Heraclitus*](https://hyperspekulation.org/2026/07/25/the-road-up-and-down-is-one-and-the-same-psychogeography-apud-heraclitus/). Published Jul. 25, 2026. Republished (with minor changes) from [my Substack](https://maxwade.substack.com/p/the-road-up-and-down-is-one-and-the).
+
+* * *
+
 #### For *Grasping Water*
 
 [*The Eye, the Universe, and the Revolt Against Vision*](https://graspingwater.com/claims/2025/max-wade/eye-universe-revolt). Published Nov. 1, 2025. 
