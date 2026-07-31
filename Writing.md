@@ -10,6 +10,12 @@ The material here generally consists of non-fiction essays written for a popular
 
 * * *
 
+#### For *Epoché Magazine*
+
+["Learning to Read the Signs of Heaven: Plotinus on the Art and Philosophy of Divination."](https://epochemagazine.org/93/learning-to-read-the-signs-of-heaven-plotinus-on-the-art-and-philosophy-of-divination/) *Epoché Magazine* [Issue 93](https://epochemagazine.org/issues/93/). Published Jul. 31, 2026. 
+
+* * *
+
 #### For the *Journal of the History of Ideas Blog*
 
 [“The Dance of Reality: Plotinus and the Activity of the Whole”](https://www.jhiblog.org/2024/11/18/the-dance-of-reality-plotinus-and-the-activity-of-the-whole/). Published Nov. 18, 2024.
@@ -33,6 +39,8 @@ My review of the 1980 film ["Altered States"](https://en.wikipedia.org/wiki/Alte
 * * * 
 
 #### For *tongue .etc*
+
+[*The Many Flavors of Knowing*](https://tongueetc.hotglue.me/?hungry??). Published Jul. 31, 2026. [CW: Contains nudity]
 
 [*The Writing Disease: An Essay on Alcidamas of Elaea’s “On Sophists”*](https://tongueetc.hotglue.me/?february2026). Published Feb. 3, 2026. Republished from [my Substack](https://substack.com/@maxwade/p-181591242).
 
