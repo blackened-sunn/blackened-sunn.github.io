@@ -41,6 +41,8 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 ### Conference Presentations
 
+“Novel Pedagogies and Philosophical Innovation: A Case Study of Para-Academic Institutions” at the 2026 Philosophy in the Wild conference. Ridley Creek State Park, PA. Aug. 7–9, 2026. Presented *in absentia*. 
+
 “Plotinus on the Mantic Arts and the Critique of Atomism in *Enn.* III.1 (3)” at the 23rd annual conference of the International Society for Neoplatonic Studies (ISNS). KU Leuven: Leuven, Belgium. Jun. 3–6, 2026. 
 
 “Mental and Extramental Time in Crescas and Descartes” at the Wisdom from the Middle Ages: Philosophical Contributions from the Abrahamic Traditions conference. University of New Brunswick: Fredericton, NB. May 12–13, 2026. 
