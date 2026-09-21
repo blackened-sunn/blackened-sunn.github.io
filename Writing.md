@@ -30,6 +30,12 @@ The material here generally consists of non-fiction essays written for a popular
 
 * * *
 
+#### For *Offsite*
+
+[*The Third Gift of the Demiurge*](https://www.offsitejournal.org/). *Offsite Journal* [vol. 1](https://www.offsitejournal.org/pdf/volume-1.pdf). Published Sep. 18, 2026. 
+
+* * *
+
 #### For *Grasping Water*
 
 [*The Eye, the Universe, and the Revolt Against Vision*](https://graspingwater.com/claims/2025/max-wade/eye-universe-revolt). Published Nov. 1, 2025. 
