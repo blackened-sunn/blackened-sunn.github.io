@@ -4,6 +4,8 @@
 
 ## Media appearances and interviews
 
+["Beyond the Neoplatonic Myths with Max Wade"](https://youtu.be/pD7NHKuiKA8?si=xnitOKrb8sfZiX_0) via [Varn Vlog](https://www.youtube.com/@VarnVlog/). Aired Oct. 1, 2026.  
+
 ["Between Matter and the One"](https://youtu.be/LzxL3LTqtK4?si=-3NnaH8Uv8xgw3ib) via the [Footnotes2Plato Podcast](https://www.youtube.com/@Footnotes2Plato). Aired Jul. 1, 2026. 
 
 ["An Introduction to Plotinus with Max Wade"](https://www.youtube.com/watch?v=WI8fdgm9LlI) via the [Hermitix Podcast](https://www.youtube.com/@hermitixpodcast/). Aired Jun 24, 2026. 
