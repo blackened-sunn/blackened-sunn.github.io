@@ -6,12 +6,12 @@
 
 *Online Courses* 
 
-- [The History and Philosophy of Astrobiology](https://www.hinternetfoundation.org/astrobiology) (with [Justin Smith-Ruiu](https://en.wikipedia.org/wiki/Justin_Smith-Ruiu)) - Hinternet Foundation, Fall 2026 (Nov. 3 – Dec. 15, 2026)
-- [Lucretius: The Nature of Things](https://brookfarminstitute.com/seminars/lucretius-the-nature-of-things/) - Brook Farm Institute for Critical Studies, Winter 2026 (Dec. 1-29, 2026)
+- [The History and Philosophy of Astrobiology](https://www.hinternetfoundation.org/astrobiology) (with [Justin Smith-Ruiu](https://en.wikipedia.org/wiki/Justin_Smith-Ruiu)) – Hinternet Foundation, Fall 2026 (Nov. 3 – Dec. 15, 2026)
+- [Lucretius: The Nature of Things](https://brookfarminstitute.com/seminars/lucretius-the-nature-of-things/) – Brook Farm Institute for Critical Studies, Winter 2026 (Dec. 1–29, 2026)
 
 *Full Instructor*
 
-- ETHC 215 Evil and Good - Thomas Jefferson University, Fall 2026
+- ETHC 215 Evil and Good – Thomas Jefferson University, Fall 2026
 - ETHC 201 Honors Moral Philosophy – Thomas Jefferson University, Spring 2026
 - PHL 260 Philosophy of Human Nature – St. Joseph’s University, Spring 2026
 - PHL 154 Moral Foundations – St. Joseph’s University, Fall 2025
