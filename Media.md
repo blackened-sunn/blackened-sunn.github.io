@@ -4,6 +4,8 @@
 
 ## Media appearances and interviews
 
+["Plotinus on Artifacts"](https://youtu.be/ttLzZSQF2xU?si=_5ffhJs1OCdnU8gZ) as part of the [Institute of Philosophy & Technology (IPT) Talk Series](https://ipt.gr/talk-series/). Aired Nov. 10, 2026. 
+
 ["Beyond the Neoplatonic Myths with Max Wade"](https://youtu.be/pD7NHKuiKA8?si=xnitOKrb8sfZiX_0) via [Varn Vlog](https://www.youtube.com/@VarnVlog/). Aired Oct. 1, 2026.  
 
 ["Between Matter and the One"](https://youtu.be/LzxL3LTqtK4?si=-3NnaH8Uv8xgw3ib) via the [Footnotes2Plato Podcast](https://www.youtube.com/@Footnotes2Plato). Aired Jul. 1, 2026. 
