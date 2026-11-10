@@ -73,6 +73,10 @@ See the [writing](/Writing.md) page for pieces written for a popular audience.
 
 ### Invited Talks and Other Presentations
 
+"Is Freedom Possible without the One? Negation, Multiplicity, and the Conditions of Possibility After Unity" at [OFFSITE: The One Is Not Symposium](https://www.instagram.com/p/DfOHYPsN8GI/). Online event. Nov. 7, 2026.
+
+["Plotinus on Artifacts"](https://ipt.gr/talk-series/max-wade/) at the [Institute of Philosophy & Technology (IPT) Talk Series](https://ipt.gr/talk-series/). Athens, Greece (delivered virtually). Nov. 5, 2026. Recorded uploaded to the [IPT YouTube channel](https://youtu.be/ttLzZSQF2xU?si=kZ8EBccju4qOOw5r). 
+
 “Socrates the Creationist: In Conversation with Pre-Socratic Natural Philosophy” at the [Thought Club: Speakers Series](https://libwww.freelibrary.org/calendar/event/165342). Free Library of Philadelphia: Philadelphia, PA. Apr. 16, 2026. 
 
 “Plotinus’ Ontology of Artifacts” at the Young Philosophers Series. Boston College: Chestnut Hill, MA. Apr. 9, 2025
