@@ -6,8 +6,8 @@
 
 *Online Courses* 
 
+- [Lucretius: The Nature of Things](https://brookfarminstitute.com/seminars/lucretius-the-nature-of-things/) – Brook Farm Institute for Critical Studies, Winter 2027 (Jan. 12-Feb. 2, 2027)
 - [The History and Philosophy of Astrobiology](https://www.hinternetfoundation.org/astrobiology) (with [Justin Smith-Ruiu](https://en.wikipedia.org/wiki/Justin_Smith-Ruiu)) – Hinternet Foundation, Fall 2026 (Nov. 3 – Dec. 15, 2026)
-- [Lucretius: The Nature of Things](https://brookfarminstitute.com/seminars/lucretius-the-nature-of-things/) – Brook Farm Institute for Critical Studies, Winter 2026 (Dec. 1–29, 2026)
 
 *Full Instructor*
 
